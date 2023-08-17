@@ -1,4 +1,4 @@
-unknown spunky tomboy;
+unknown spunky dyke;
 legendary sucker for girls and vidya
 (22; SPA/ENG)
 
